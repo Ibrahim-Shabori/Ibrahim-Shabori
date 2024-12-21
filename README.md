@@ -4,6 +4,6 @@
 
 - 🌱 I’m currently majoring in computer and control systems engineering department at mansoura university in Egypt.
 
-- 😄 Pronouns: you can call me Shabori or Giant Hima :-).
+- 😄 Pronouns: you can call me Shabori :-).
 
 
